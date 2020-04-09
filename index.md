@@ -1,5 +1,6 @@
 # No levanta contra Dios el Cid su puño
 
+ <p align="center">
 En mi mente dibujo mi cosecha,  
 altas espigas y frondosa rama,  
 ñudosa fruta apoteosis hecha,  
@@ -17,4 +18,4 @@ No ha sido trascendente mi fractura
 No levanta contra Dios el Cid su puño,  
 no teniendo buen señor, no *se* tortura,  
 y no somete su alma a su propio aruño.  
-
+</p>
