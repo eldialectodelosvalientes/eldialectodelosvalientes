@@ -1,4 +1,24 @@
-# No levanta contra Dios el Cid su puño
+## XI. Lente que reconoce su propia curvatura
+
+FUERE mi conexión con las fuerzas de la tragedia  
+tan solo mi enfermedad mental bajo pseudónimo  
+no desrompe eso al mundo, ni arregla mi desánimo,  
+ni compra misericordia, ni amansa a mi discordia.  
+
+En perpetua alerta, juega con perfidia e insidia  
+jueguecitos de énfasis y de encuadre tristísimo,  
+parodia mi arquetipo, lo retuerce en su antónimo   
+teje falordia tras falordia, agota, punza, incordia.  
+
+Y por mis patéticos pensamientos soy vencido  
+no aguanto pretender ser un ser humano; drenado,  
+necesaria máscara se vuelve caricatura.  
+
+Dolor, retorciéndome indicas pensar retorcido,  
+cruzando al otro lado del espejo emborronado,  
+soy lente que reconoce su propia curvatura.  
+
+## VIII. No levanta contra Dios el Cid su puño
 
 En mi mente dibujo mi cosecha,  
 altas espigas y frondosa rama,  
